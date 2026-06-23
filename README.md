@@ -1,1 +1,1 @@
-# Fruad-Awareness-Week
+# Fraud-Awareness-Week
